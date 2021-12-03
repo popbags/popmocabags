@@ -1,3 +1,3 @@
 # popmocabags
-Popmoca focus on hands-free, chic and ready for everything crossbody phone bags that can truely change your life.
+Popmoca is designed to fit your daily life, not just your phone and cards. Find your bag on Popmoca now!
 https://popmoca.com/
